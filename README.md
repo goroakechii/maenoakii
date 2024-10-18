@@ -4,7 +4,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝖸𝗈𝗎 𝗐𝗂𝗅𝗅 𝗇𝗈𝗋𝗆𝖺𝗅𝗅𝗒 𝖿𝗂𝗇𝖽 𝗆𝖾 𝗂𝗇 𝗍𝗁𝖾 𝖻𝗌𝖽, 𝗉𝗃𝗌𝗄, 𝖺𝗅𝗇𝗌𝗍 𝖺𝗋𝖾𝖺𝗌 𝗈𝗋 𝗐𝖺𝗇𝖽𝖾𝗋𝗂𝗇𝗀 𝖺𝗋𝗈𝗎𝗇𝖽.
 
-ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![alt text](https://komarev.com/ghpvc/?username=maenoakii&color=orange&label=Personal+Viewers+!+Your+Count+Number+:)
+ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![alt text](https://komarev.com/ghpvc/?username=maenoakii&color=orange&label=Personal+Viewers+!+Your+Count+Number+:)
 _________________
 
 ㅤ<p align="center">
