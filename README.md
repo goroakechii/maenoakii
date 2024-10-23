@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/1062106972398309499/1296792484776513568/Untitled152_20241018121015.png?ex=6713939d&is=6712421d&hm=8ea5945dedb3a93a350be66d7bc98e8271fdf8aae22048ab5994bd6d71bbc8e0&=&format=webp&quality=lossless&width=614&height=614" />
+  <img src="https://media.discordapp.net/attachments/1062106972398309499/1296792484776513568/Untitled152_20241018121015.png?ex=671a2b1d&is=6718d99d&hm=a1dfbb8fd0cb5199a80ee1eab090b70a73e1d7550d4c676a97cba8449af08591&=&format=webp&quality=lossless&width=614&height=614" />
 </p>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝖸𝗈𝗎 𝗐𝗂𝗅𝗅 𝗇𝗈𝗋𝗆𝖺𝗅𝗅𝗒 𝖿𝗂𝗇𝖽 𝗆𝖾 𝗂𝗇 𝗍𝗁𝖾 𝖻𝗌𝖽, 𝗉𝗃𝗌𝗄, 𝖺𝗅𝗇𝗌𝗍 𝖺𝗋𝖾𝖺𝗌 𝗈𝗋 𝗐𝖺𝗇𝖽𝖾𝗋𝗂𝗇𝗀 𝖺𝗋𝗈𝗎𝗇𝖽.
