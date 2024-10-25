@@ -25,5 +25,5 @@ _________________
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤmy social anxiety is extreme so I tend to not interact first usually, but I like making new friends, so go ahead! just be under 18.
 
 ㅤㅤㅤI am hyperfixated on vtubers, alien stage and zeno: remake currently, but I have many more interests I hold close to my heart.
-ㅤㅤㅤㅤㅤㅤㅤ I find it very difficult to befriend people who have little to no of the same interests as me, I am also awkward at first unless we click instantly.
+ㅤㅤㅤI find it very difficult to befriend people who have little to no of the same interests as me, I am also awkward at first unless we click instantly.
 ㅤㅤㅤㅤI can't talk to overly dry people, those who use too many tonetags (/j, etc are fine), or anything genuinely negative. I like a lot of alone time, but I can be clingy/affectionate, I love that reciprocated back!
