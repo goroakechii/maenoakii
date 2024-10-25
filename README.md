@@ -27,7 +27,7 @@ _________________
 ㅤㅤㅤI am hyperfixated on vtubers, alien stage and zeno: remake currently, but I have many more interests I hold close to my heart.
 ㅤㅤI find it difficult to befriend people who have little to no of the same interests as me, I'm also awkward at first unless we click instantly.
 
-ㅤIf you aren't comfortable around people who do read bl/manhwa, I may not be your person. however, I do not make it my whole personality, the plots are enjoyable.
+If you aren't comfortable around people who do read bl/manhwa, I may not be your person. however, I do not make it my whole personality, the plots are enjoyable.
 _________________
 
 I can't talk to overly dry people, those who use too many tonetags (/j, etc are fine), or anything genuinely negative. I like a lot of alone time, but I can be clingy/affectionate, I love that reciprocated back! I have terrible attatchment and abandonment issues.
