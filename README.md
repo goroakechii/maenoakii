@@ -16,6 +16,6 @@ _________________
 
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ[carrd](https://poetsown.carrd.co/)ㅤㅤ[prns page](https://pronouns.cc/@satosugus)ㅤㅤ[pinterest](https://uk.pinterest.com/startourist/)
 
-ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤ![alt text](https://64.media.tumblr.com/272d89ec37cf70887d383c983794fac2/f06d09507e506cb1-88/s100x200/af7b99e062da63b5c79e7ed9a98b6007df5e73a3.pnj) ![](https://linksontheshore.carrd.co/assets/images/image37.gif?v=79db2332) ![](https://64.media.tumblr.com/217b1eca345b916bffe0d3f22d4e711a/d79b386dd434d7d8-f6/s100x200/ae47bf630b203de970b120590844bc93b242d9ba.gifv)
+ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ![alt text](https://64.media.tumblr.com/272d89ec37cf70887d383c983794fac2/f06d09507e506cb1-88/s100x200/af7b99e062da63b5c79e7ed9a98b6007df5e73a3.pnj) ![](https://linksontheshore.carrd.co/assets/images/image37.gif?v=79db2332) ![](https://64.media.tumblr.com/217b1eca345b916bffe0d3f22d4e711a/d79b386dd434d7d8-f6/s100x200/ae47bf630b203de970b120590844bc93b242d9ba.gifv)
 _________________
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤI am autistic, I have tics/tourette's and a high possibility for adhd and bpd too.
