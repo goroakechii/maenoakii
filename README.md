@@ -20,4 +20,4 @@ _________________
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ[carrd](https://poetsown.carrd.co/)ㅤㅤ[prns page](https://pronouns.cc/@satosugus)ㅤㅤ[pinterest](https://uk.pinterest.com/startourist/)
 _________________
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤI am autistic, I have tics/tourette's and a high possibility for adhd and bpd too.
-ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤmy social anxiety is extreme so I tend to not interact first usually, but I like making new friends, so go ahead! just be under 18.
+ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤmy social anxiety is extreme so I tend to not interact first usually, but I like making new friends, so go ahead! just be under 18.
