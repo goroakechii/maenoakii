@@ -30,4 +30,4 @@ _________________
 
 I can't talk to overly dry people, those who use too many tonetags (/j, etc are fine), or anything genuinely negative. I like a lot of alone time, but I can be clingy/affectionate, I love that reciprocated back! I have terrible attatchment and abandonment issues.
 
-If that may bother you, I suggest you don't interact with me. reassurance means a lot to me, however I am quite independent, so I don't really ask for it. I often go quiet and distant if upset, so don't think you've done anything wrong.
+If that may bother you, I suggest you don't interact with me. reassurance means a lot to me, however I am quite independent, so I don't really ask for it. I often go quiet and distant if upset, so don't think you've done anything wrong. I prefer to discuss problems between us rather than argue, by the way.
