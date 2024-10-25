@@ -14,7 +14,7 @@ _________________
    <img src="https://64.media.tumblr.com/eafcb3c4092a7df932fcbad8d3f8a123/c460357baf702419-c1/s540x810/c7be068f81d6025bef5d20aee4723f352b76849e.pnj" />
 </p>
 
-ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ[carrd](https://poetsown.carrd.co/)ㅤㅤ[prns page](https://pronouns.cc/@satosugus)ㅤㅤ[pinterest](https://uk.pinterest.com/startourist/)
+ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ![alt text](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/7e297bf6-a011-460c-981a-3b037289619c/dcez91f-cc6b7900-2c41-4396-b05d-dcb049355b57.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzdlMjk3YmY2LWEwMTEtNDYwYy05ODFhLTNiMDM3Mjg5NjE5Y1wvZGNlejkxZi1jYzZiNzkwMC0yYzQxLTQzOTYtYjA1ZC1kY2IwNDkzNTViNTcucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.k3Ho7TcIYhBhFqN-GAEYeutuRfoZ0uxBXYnQMNDRsnc)ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ[carrd](https://poetsown.carrd.co/)ㅤㅤ[prns page](https://pronouns.cc/@satosugus)ㅤㅤ[pinterest](https://uk.pinterest.com/startourist/)
 
 _________________
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤI am autistic, I have tics/tourette's and a high possibility for adhd and bpd too.
