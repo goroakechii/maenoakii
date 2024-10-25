@@ -35,4 +35,4 @@ If that may bother you, I suggest you don't interact with me. reassurance means 
 
 I am easily influenced by how people or ways my comfort characters may act, it happens unintentionally, so keep that in mind if you may.
 
-If you aren't comfortable around people who do read bl/manhwa, I may not be your person. however, I do not make it my whole personality, the plots are enjoyable. (I love merry marbling, litc, 19 days, murderous lewellyns candlelit diner, tgcf, mdzs, etc)
+If you aren't comfortable around people who do read bl/manhwa, I may not be your person. however, I do not make it my whole personality, the plots are enjoyable. (I love merry marbling, lost in the cloud, 19 days, murderous lewellyns candlelit diner, tgcf, mdzs, etc)
