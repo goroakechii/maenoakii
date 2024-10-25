@@ -26,4 +26,4 @@ _________________
 
 ㅤㅤㅤI am hyperfixated on vtubers, alien stage and zeno: remake currently, but I have many more interests I hold close to my heart.
 ㅤㅤI find it difficult to befriend people who have little to no of the same interests as me, I'm also awkward at first unless we click instantly.
-I can't talk to overly dry people, those who use too many tonetags (/j, etc are fine), or anything genuinely negative. I like a lot of alone time, but I can be clingy/affectionate, I love that reciprocated back!
+ ㅤㅤㅤㅤㅤㅤㅤI can't talk to overly dry people, those who use too many tonetags (/j, etc are fine), or anything genuinely negative. I like a lot of alone time, but I can be clingy/affectionate, I love that reciprocated back!
