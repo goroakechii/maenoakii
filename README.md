@@ -16,7 +16,7 @@ _________________
 
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ[carrd](https://poetsown.carrd.co/)ㅤㅤ[prns page](https://pronouns.cc/@satosugus)ㅤㅤ[pinterest](https://uk.pinterest.com/startourist/)
 
-ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤ![alt text](https://64.media.tumblr.com/272d89ec37cf70887d383c983794fac2/f06d09507e506cb1-88/s100x200/af7b99e062da63b5c79e7ed9a98b6007df5e73a3.pnj)
+ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ![alt text](https://64.media.tumblr.com/272d89ec37cf70887d383c983794fac2/f06d09507e506cb1-88/s100x200/af7b99e062da63b5c79e7ed9a98b6007df5e73a3.pnj)
 
 _________________
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤI am autistic, I have tics/tourette's and a high possibility for adhd and bpd too.
