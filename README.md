@@ -13,4 +13,4 @@ _________________
 <p align="center">
    <img src="https://64.media.tumblr.com/eafcb3c4092a7df932fcbad8d3f8a123/c460357baf702419-c1/s540x810/c7be068f81d6025bef5d20aee4723f352b76849e.pnj" />
 </p>
-ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤI am autistic, I have tics/tourette's and a high possibility for adhd and bpd too.
+ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤI am autistic, I have tics/tourette's and a high possibility for adhd and bpd too.
