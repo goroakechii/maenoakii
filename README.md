@@ -22,7 +22,7 @@ _________________
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ(kinda outdated)ㅤㅤ[carrd](https://poetsown.carrd.co/)ㅤㅤ[prns page](https://pronouns.cc/@ivantill.)ㅤㅤ[pinterest](https://uk.pinterest.com/startourist/)
 _________________
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤbritish! I am autistic, I have tics/tourette's and a high possibility for adhd and bpd too.
-ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤmy social anxiety is extreme so I tend to not interact first usually, but I like making new friends, so go ahead! just be under 18.
+ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤmy social anxiety is extreme so I tend to not interact first usually, but I like making new friends, so go ahead! just be under 18.
 
 ㅤㅤㅤI am hyperfixated on vtubers, alien stage and zeno: remake currently, but I have many more interests I hold close to my heart.
 ㅤㅤI find it difficult to befriend people who have little to no of the same interests as me, I'm also awkward at first unless we click instantly.
