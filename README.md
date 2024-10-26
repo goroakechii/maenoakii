@@ -2,7 +2,7 @@
    
    
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![alt text](https://komarev.com/ghpvc/?username=maenoakii&color=orange&label=Personal+Viewers+!+Your+Count+Number+:)
-ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤyou will normally find me sitting in the pjsk, bsd or alnst area. my github is always the same and linked!
+ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤyou will normally find me sitting in the alnst, pjsk or bsd area. my github is always the same and linked!
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤwhisper to talk to me, if I am alone I am 99% offtab or making a pony. I try to be nice as long as you are too.
 _________________
 <p align="center">
