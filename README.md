@@ -19,7 +19,7 @@ _________________
 
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ![alt text](https://64.media.tumblr.com/272d89ec37cf70887d383c983794fac2/f06d09507e506cb1-88/s100x200/af7b99e062da63b5c79e7ed9a98b6007df5e73a3.pnj)ㅤ![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/90d8f037-e89b-4c3e-8272-5b63101338b0/d9tc945-f6477b92-c96a-4f83-8a63-b71218317fdf.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzkwZDhmMDM3LWU4OWItNGMzZS04MjcyLTViNjMxMDEzMzhiMFwvZDl0Yzk0NS1mNjQ3N2I5Mi1jOTZhLTRmODMtOGE2My1iNzEyMTgzMTdmZGYuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Ew8__WW9jcwlSJqZb1v3yObSxN7qZpHZ4Zy3mAJncwA)ㅤ![](https://64.media.tumblr.com/217b1eca345b916bffe0d3f22d4e711a/d79b386dd434d7d8-f6/s100x200/ae47bf630b203de970b120590844bc93b242d9ba.gifv)
 
-ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ(kinda outdated)ㅤㅤ[carrd](https://poetsown.carrd.co/)ㅤㅤ[prns page](https://pronouns.cc/@ivantill.)ㅤㅤ[pinterest](https://uk.pinterest.com/startourist/)ㅤㅤ[atabook](https://maenoaki.atabook.org/)
+ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤ(kinda outdated)ㅤㅤ[carrd](https://poetsown.carrd.co/)ㅤㅤ[prns page](https://pronouns.cc/@ivantill.)ㅤㅤ[pinterest](https://uk.pinterest.com/startourist/)ㅤㅤ[atabook](https://maenoaki.atabook.org/)
 _________________
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤbritish! I am autistic, I have tics/tourette's and a high possibility for adhd and bpd too.
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤmy social anxiety is extreme so I tend to not interact first usually, but I like making new friends, so go ahead! just be under 18.
