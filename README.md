@@ -21,7 +21,7 @@ _________________
 
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ[carrd](https://maenotill.carrd.co/)ㅤㅤ[prns page](https://pronouns.cc/@ivantill.)ㅤㅤ[pinterest](https://uk.pinterest.com/startourist/)ㅤㅤ[atabook](https://maenoaki.atabook.org/)
 _________________
-ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤbritish! I am autistic, I have tics/tourette's and a high possibility for adhd and bpd too.
+ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤbritish (england located)! I am autistic, I have tics/tourette's and a high possibility for adhd and bpd too.
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤmy social anxiety is extreme so I tend to not interact first usually, but I love making new friends, so please int! just be under 18.
 
 ㅤㅤㅤI am hyperfixated on vtubers, alien stage and zeno: remake currently, but I have many more interests I hold close to my heart.
