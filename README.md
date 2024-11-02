@@ -22,7 +22,7 @@ _________________
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ[carrd](https://maenotill.carrd.co/)ㅤㅤ[prns page](https://pronouns.cc/@ivantill.)ㅤㅤ[pinterest](https://uk.pinterest.com/startourist/)ㅤㅤ[atabook](https://maenoaki.atabook.org/)
 _________________
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤbritish (england located)! I am autistic, I have tics/tourette's and a high possibility for adhd and bpd too.
-ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤmy social anxiety is extreme so I tend to not interact first usually, but I love making new friends, so please int! just be under 18.
+ㅤㅤㅤㅤㅤㅤㅤ ㅤmy social anxiety is extreme so I tend to not interact first usually, but I love making new friends, so please int! just be under 18.
 
 ㅤㅤㅤI am hyperfixated on vtubers, alien stage and zeno: remake currently, but I have many more interests I hold close to my heart.
 ㅤㅤI find it difficult to befriend people who have little to no of the same interests as me, I'm also awkward at first unless we click instantly.
