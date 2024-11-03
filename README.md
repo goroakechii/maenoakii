@@ -25,7 +25,7 @@ _________________
 ㅤㅤㅤㅤㅤㅤ ㅤㅤmy social anxiety is extreme so I tend to not interact first usually, but I love making new friends, so please int! just be under 18.
 
 ㅤI am hyperfixated on vtubers, alien stage, no home and zeno: remake currently, but I have more interests I hold close to my heart.
-I find it difficult to befriend people who have little to no of the same interests as me, I'm also awkward at first unless we click.
+ㅤI find it difficult to befriend people who have little to no of the same interests as me, I'm also awkward at first unless we click.
 
 _________________
 
