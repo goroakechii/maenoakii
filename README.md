@@ -33,6 +33,6 @@ I can't talk to overly dry people, those who oftenly use too many tonetags (/j, 
 
 If that may bother you, I suggest you don't interact with me. reassurance means a lot to me, however I am quite independent, so I don't really ask for it. I often go quiet and distant if upset, so don't think you've done anything wrong. I prefer to discuss problems between us rather than argue, by the way.
 
-If you aren't comfortable around people who do read bl/manhwa, I may not be your person. however, I do not make it my whole personality. (I love merry marbling, lost in the cloud, 19 days, murderous lewellyn, little mushroom, tgcf, mdzs, etc)
+If you aren't comfortable around people who do read bl/manhwa, I may not be your person. however, I do not make it my whole personality. (I love merry marbling, lost in the cloud, 19 days, murderous lewellyn, little mushroom, tgcf, mdzs, etc) I also like no home!
 
 I am easily influenced by how people or ways my comfort characters may act, it happens unintentionally, so keep that in mind if you may.
