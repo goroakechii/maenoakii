@@ -1,7 +1,7 @@
 <p align="center">
    
    
-ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![alt text](https://komarev.com/ghpvc/?username=maenoakii&color=orange&label=Personal+Viewers+!+Your+Count+Number+:)
+ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![alt text](https://komarev.com/ghpvc/?username=maenoakii&color=orange&label=Personal+Viewers+!+Your+Count+Number+:)
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤyou will normally find me sitting in the alnst / pjsk, area. my github is always the same and linked!
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤwhisper to talk to me, if I am alone I am 99% offtab or making a pony! I try to be nice as long as you are too.
 _________________
