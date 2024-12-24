@@ -2,7 +2,7 @@
    
    
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![alt text](https://komarev.com/ghpvc/?username=maenoakii&color=orange&label=Personal+Viewers+!+Your+Count+Number+:)
-ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤyou will normally find me sitting in the alnst area with my bf. my github is always the same and linked!
+ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤou will normally find me sitting in the alnst area with my bf. my github is always the same and linked!
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤwhisper to talk to me, if I am alone I am 99% offtab or making a pony! I try to be nice as long as you are too.
 _________________
 <p align="center">
